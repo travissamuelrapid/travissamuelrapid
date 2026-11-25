@@ -44,7 +44,7 @@ $\text{\color{#DCDCD3} dbls}$ $\text{\color{#DD3550} dni}$
 $\text{\color{#DD3550} srcemates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#DD3550} byi}$               
 <div align="center">
                 
-[🍓](https://chronicalnuisance.straw.page/) $\text{\color{#DD3550} .}$ [<i>新</i>](https://travissamuelrapid.atabook.org/) $\text{\color{#DD3550} .}$ [<i>gllery</i>](https://rentry.co/chronicalsgallery) $\text{\color{#DD3550} .}$  [<i>l𔘓vemail</i>](https://rentry.co/chronicslovemail)
+[🍓](https://chronicalnuisance.straw.page/) $\text{\color{#DD3550} .}$ [<i>新</i>](https://travissamuelrapid.atabook.org/) $\text{\color{#DD3550} .}$ [<i>gllery</i>](https://rentry.co/chronicalsgallery) $\text{\color{#DD3550} .}$  [<i>l𔘓vemail</i>](https://rentry.co/chronicslovemail) [*shared*](https://rentry.co/rustravs)
                 </div>
             </td>
         </tr>
